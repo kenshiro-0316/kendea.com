@@ -1,1 +1,1 @@
-# kendea.video
+# kendea.com
